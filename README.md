@@ -1,3 +1,3 @@
 ### About
 
-I make Minecraft videos.
+I speedrun Mario.
